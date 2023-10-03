@@ -9,3 +9,5 @@ Ednar7/Ednar7 is a ✨ special ✨ repository because its `README.md` (this file
 You can click the Preview link to take a look at your changes.
 --->
 i'm looking camera
+ i'm sorry note love 
+intelengency
